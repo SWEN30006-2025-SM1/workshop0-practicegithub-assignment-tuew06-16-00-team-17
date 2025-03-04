@@ -1,2 +1,2 @@
-# Workshop 0 Template
-A template for Workshop 0
+# Team 17 - Workshop Tuesday W06 16:00
+The best team you can find on the earth.
